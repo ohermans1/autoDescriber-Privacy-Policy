@@ -70,7 +70,7 @@ We may update this Privacy Policy from time to time to reflect changes in our pr
 
 ## Contact Us
 
-If you have any questions or concerns about our privacy practices or this Privacy Policy, please contact us at ohermans1@gmail.com.
+If you have any questions or concerns about our privacy practices or this Privacy Policy, please contact us at autobloggerhelp@gmail.com.
 
 ***
 
@@ -123,7 +123,7 @@ If you have any questions or concerns about our privacy practices or this Privac
 
 ## 联系我们
 
-如果您对我们的隐私实践或本隐私政策有任何问题或疑虑，请通过电子邮件ohermans1@gmail.com与我们联系。
+如果您对我们的隐私实践或本隐私政策有任何问题或疑虑，请通过电子邮件autobloggerhelp@gmail.com与我们联系。
 
 ***
 
@@ -176,7 +176,7 @@ If you have any questions or concerns about our privacy practices or this Privac
 
 ## 聯繫我們
 
-如果您對我們的隱私實踐或本隱私政策有任何問題或疑慮，請通過電子郵件 ohermans1@gmail.com 與我們聯繫。
+如果您對我們的隱私實踐或本隱私政策有任何問題或疑慮，請通過電子郵件 autobloggerhelp@gmail.com 與我們聯繫。
 
 ***
 
@@ -229,7 +229,7 @@ Můžeme čas od času aktualizovat tyto Zásady ochrany osobních údajů k odr
 
 ## Kontaktujte nás
 
-Pokud máte jakékoliv otázky nebo obavy ohledně našich postupů ochrany osobních údajů nebo těchto Zásad ochrany osobních údajů, prosím kontaktujte nás na ohermans1@gmail.com.
+Pokud máte jakékoliv otázky nebo obavy ohledně našich postupů ochrany osobních údajů nebo těchto Zásad ochrany osobních údajů, prosím kontaktujte nás na autobloggerhelp@gmail.com.
 
 ***
 
@@ -282,7 +282,7 @@ Vi kan opdatere denne fortrolighedspolitik fra tid til anden for at afspejle æn
 
 ## Kontakt os
 
-Hvis du har spørgsmål eller bekymringer vedrørende vores praksis vedrørende beskyttelse af personlige oplysninger eller denne fortrolighedspolitik, bedes du kontakte os på ohermans1@gmail.com.
+Hvis du har spørgsmål eller bekymringer vedrørende vores praksis vedrørende beskyttelse af personlige oplysninger eller denne fortrolighedspolitik, bedes du kontakte os på autobloggerhelp@gmail.com.
 
 ***
 
@@ -335,7 +335,7 @@ We kunnen dit Privacybeleid van tijd tot tijd bijwerken om veranderingen in onze
 
 ## Neem contact met ons op
 
-Als je vragen of zorgen hebt over onze privacypraktijken of dit Privacybeleid, neem dan contact met ons op via ohermans1@gmail.com.
+Als je vragen of zorgen hebt over onze privacypraktijken of dit Privacybeleid, neem dan contact met ons op via autobloggerhelp@gmail.com.
 
 ***
 
@@ -388,7 +388,7 @@ Voimme päivittää tätä Tietosuojaselostetta ajoittain heijastamaan muutoksia
 
 ## Ota yhteyttä
 
-Jos sinulla on kysymyksiä tai huolenaiheita tietosuojakäytännöistämme tai tästä Tietosuojaselosteesta, ota yhteyttä sähköpostitse osoitteeseen ohermans1@gmail.com.
+Jos sinulla on kysymyksiä tai huolenaiheita tietosuojakäytännöistämme tai tästä Tietosuojaselosteesta, ota yhteyttä sähköpostitse osoitteeseen autobloggerhelp@gmail.com.
 
 ***
 
@@ -441,7 +441,7 @@ Nous pouvons mettre à jour cette politique de confidentialité de temps à autr
 
 ## Contactez-nous
 
-Si vous avez des questions ou des préoccupations concernant nos pratiques en matière de confidentialité ou cette politique de confidentialité, veuillez nous contacter à l'adresse ohermans1@gmail.com.
+Si vous avez des questions ou des préoccupations concernant nos pratiques en matière de confidentialité ou cette politique de confidentialité, veuillez nous contacter à l'adresse autobloggerhelp@gmail.com.
 
 ***
 
@@ -494,7 +494,7 @@ Wir können diese Datenschutzrichtlinie von Zeit zu Zeit aktualisieren, um Ände
 
 ## Kontaktieren Sie uns
 
-Wenn Sie Fragen oder Bedenken zu unseren Datenschutzpraktiken oder dieser Datenschutzrichtlinie haben, kontaktieren Sie uns bitte unter ohermans1@gmail.com.
+Wenn Sie Fragen oder Bedenken zu unseren Datenschutzpraktiken oder dieser Datenschutzrichtlinie haben, kontaktieren Sie uns bitte unter autobloggerhelp@gmail.com.
 
 ***
 
@@ -547,7 +547,7 @@ Potremmo aggiornare questa Informativa sulla privacy di volta in volta per rifle
 
 ## Contattaci
 
-Se hai domande o preoccupazioni riguardo alle nostre pratiche sulla privacy o a questa Informativa sulla privacy, contattaci all'indirizzo ohermans1@gmail.com.
+Se hai domande o preoccupazioni riguardo alle nostre pratiche sulla privacy o a questa Informativa sulla privacy, contattaci all'indirizzo autobloggerhelp@gmail.com.
 
 ***
 
@@ -600,7 +600,7 @@ autoDescriberでは、お客様のプライバシーを非常に重要視して�
 
 ## お問い合わせ
 
-プライバシーに関する当社の実践やこのプライバシーポリシーについてご質問や懸念がある場合は、ohermans1@gmail.com までお問い合わせください。
+プライバシーに関する当社の実践やこのプライバシーポリシーについてご質問や懸念がある場合は、autobloggerhelp@gmail.com までお問い合わせください。
 
 ***
 
@@ -653,7 +653,7 @@ autoDescriber에서는 귀하의 개인정보를 심각하게 취급합니다. �
 
 ## 연락처
 
-개인정보 처리 방침이나 당사의 개인정보 처리 관행에 관한 질문이나 우려 사항이 있는 경우 ohermans1@gmail.com 로 연락해 주십시오.
+개인정보 처리 방침이나 당사의 개인정보 처리 관행에 관한 질문이나 우려 사항이 있는 경우 autobloggerhelp@gmail.com 로 연락해 주십시오.
 
 ***
 
@@ -706,7 +706,7 @@ Vi kan oppdatere denne personvernserklæringen fra tid til annen for å gjenspei
 
 ## Kontakt oss
 
-Hvis du har spørsmål eller bekymringer om våre personvernpraksiser eller denne personvernserklæringen, vennligst kontakt oss på ohermans1@gmail.com.
+Hvis du har spørsmål eller bekymringer om våre personvernpraksiser eller denne personvernserklæringen, vennligst kontakt oss på autobloggerhelp@gmail.com.
 
 ***
 
@@ -759,7 +759,7 @@ Możemy aktualizować tę Politykę Prywatności od czasu do czasu, aby odzwierc
 
 ## Skontaktuj się z nami
 
-Jeśli masz jakiekolwiek pytania lub obawy dotyczące naszych praktyk prywatności lub tej Polityki Prywatności, skontaktuj się z nami pod adresem ohermans1@gmail.com.
+Jeśli masz jakiekolwiek pytania lub obawy dotyczące naszych praktyk prywatności lub tej Polityki Prywatności, skontaktuj się z nami pod adresem autobloggerhelp@gmail.com.
 
 ***
 
@@ -812,7 +812,7 @@ Podemos atualizar esta Política de Privacidade de tempos em tempos para refleti
 
 ## Entre em contato conosco
 
-Se você tiver alguma dúvida ou preocupação sobre nossas práticas de privacidade ou esta Política de Privacidade, entre em contato conosco em ohermans1@gmail.com.
+Se você tiver alguma dúvida ou preocupação sobre nossas práticas de privacidade ou esta Política de Privacidade, entre em contato conosco em autobloggerhelp@gmail.com.
 
 ***
 
@@ -865,7 +865,7 @@ Podemos atualizar esta Política de Privacidade de tempos a tempos para refletir
 
 ## Contacte-nos
 
-Se tiver alguma dúvida ou preocupação sobre as nossas práticas de privacidade ou esta Política de Privacidade, contacte-nos em ohermans1@gmail.com.
+Se tiver alguma dúvida ou preocupação sobre as nossas práticas de privacidade ou esta Política de Privacidade, contacte-nos em autobloggerhelp@gmail.com.
 
 ***
 
@@ -918,7 +918,7 @@ Podemos actualizar esta Política de privacidad de vez en cuando para reflejar c
 
 ## Contáctanos
 
-Si tienes alguna pregunta o inquietud sobre nuestras prácticas de privacidad o esta Política de privacidad, contáctanos en ohermans1@gmail.com.
+Si tienes alguna pregunta o inquietud sobre nuestras prácticas de privacidad o esta Política de privacidad, contáctanos en autobloggerhelp@gmail.com.
 
 ***
 
@@ -971,7 +971,7 @@ Vi kan uppdatera denna Integritetspolicy från tid till annan för att återspeg
 
 ## Kontakta oss
 
-Om du har några frågor eller funderingar om våra integritetsprinciper eller denna Integritetspolicy, vänligen kontakta oss på ohermans1@gmail.com.
+Om du har några frågor eller funderingar om våra integritetsprinciper eller denna Integritetspolicy, vänligen kontakta oss på autobloggerhelp@gmail.com.
 
 ***
 
@@ -1024,7 +1024,7 @@ Om du har några frågor eller funderingar om våra integritetsprinciper eller d
 
 ## ติดต่อเรา
 
-หากคุณมีคำถามหรือข้อกังวลเกี่ยวกับการปฏิบัติความเป็นส่วนตัวของเราหรือนโยบายความเป็นส่วนตัวนี้ โปรดติดต่อเราที่ ohermans1@gmail.com
+หากคุณมีคำถามหรือข้อกังวลเกี่ยวกับการปฏิบัติความเป็นส่วนตัวของเราหรือนโยบายความเป็นส่วนตัวนี้ โปรดติดต่อเราที่ autobloggerhelp@gmail.com
 
 ***
 
@@ -1077,6 +1077,6 @@ Bu Gizlilik Politikasını zaman içinde uygulamalarımızda veya diğer operasy
 
 ## Bize Ulaşın
 
-Gizlilik uygulamalarımız veya bu Gizlilik Politikası hakkında herhangi bir sorunuz veya endişeniz varsa, lütfen bizimle ohermans1@gmail.com adresinden iletişime geçin.
+Gizlilik uygulamalarımız veya bu Gizlilik Politikası hakkında herhangi bir sorunuz veya endişeniz varsa, lütfen bizimle autobloggerhelp@gmail.com adresinden iletişime geçin.
 
 
