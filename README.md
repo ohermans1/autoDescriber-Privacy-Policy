@@ -1,3 +1,24 @@
+- *Note: The main version of this Privacy Policy is in English. In the event of any discrepancies or conflicts between the translated versions and the English version, the English version shall prevail.*
+- *注意：本隐私政策的主要版本为英文。如果翻译版本与英文版本存在任何不一致或冲突，将以英文版本为准。*
+- *注意：本隱私政策的主要版本為英文。如果翻譯版本與英文版本存在任何不一致或衝突，將以英文版本為準。*
+- *Poznámka: Hlavní verze tohoto zásad o ochraně osobních údajů je v angličtině. V případě nesrovnalostí nebo konfliktů mezi přeloženými verzemi a anglickou verzí má přednost anglická verze.*
+- *Bemærk: Hovedversionen af denne privatlivspolitik er på engelsk. I tilfælde af uoverensstemmelser eller konflikter mellem de oversatte versioner og den engelske version, har den engelske version forrang.*
+- *Let op: De belangrijkste versie van dit privacybeleid is in het Engels. In geval van enige verschillen of conflicten tussen de vertaalde versies en de Engelse versie, geldt de Engelse versie.*
+- *Huomautus: Tämän tietosuojakäytännön pääversio on englanniksi. Jos käännöksissä on ristiriitaa tai konfliktia englanninkielisen version kanssa, englanninkielinen versio on etusijalla.*
+- *Remarque : La version principale de cette politique de confidentialité est en anglais. En cas de divergences ou de conflits entre les versions traduites et la version anglaise, la version anglaise prévaudra.*
+- *Hinweis: Die Hauptversion dieser Datenschutzrichtlinie ist in Englisch verfasst. Im Falle von Unstimmigkeiten oder Konflikten zwischen den übersetzten Versionen und der englischen Version hat die englische Version Vorrang.*
+- *Nota: La versione principale di questa Informativa sulla privacy è in inglese. In caso di discrepanze o conflitti tra le versioni tradotte e quella in inglese, prevarrà la versione in inglese.*
+- *注意事項：本プライバシーポリシーの主要バージョンは英語です。翻訳バージョンと英語バージョンとの間で不一致や衝突が発生した場合、英語バージョンが優先されます。*
+- *주의: 본 개인정보 처리방침의 주 버전은 영어입니다. 번역된 버전과 영어 버전 간의 불일치 또는 충돌이 발생하는 경우 영어 버전이 우선됩니다.*
+- *Merk: Hovedversjonen av denne personvernerklæringen er på engelsk. Ved uoverensstemmelser eller konflikter mellom de oversatte versjonene og den engelske versjonen, har den engelske versjonen forrang.*
+- *Uwaga: Główna wersja niniejszej Polityki prywatności jest w języku angielskim. W przypadku jakichkolwiek rozbieżności lub konfliktów między przetłumaczonymi wersjami a wersją angielską, ma pierwszeństwo wersja angielska.*
+- *Nota: A versão principal desta Política de Privacidade é em inglês. Em caso de discrepâncias ou conflitos entre as versões traduzidas e a versão em inglês, a versão em inglês prevalecerá.*
+- *Nota: A versão principal desta Política de Privacidade é em inglês. Em caso de discrepâncias ou conflitos entre as versões traduzidas e a versão em inglês, a versão em inglês prevalecerá.*
+- *Nota: La versión principal de esta Política de privacidad es en inglés. En caso de discrepancias o conflictos entre las versiones traducidas y la versión en inglés, prevalecerá la versión en inglés.*
+- *Observera: Den huvudsakliga versionen av denna integritetspolicy är på engelska. Vid eventuella olikheter eller konflikter mellan de översatta versionerna och den engelska versionen har den engelska versionen företräde.*
+- *หมายเหตุ: เวอร์ชันหลักของนโยบายความเป็นส่วนตัวนี้เป็นภาษาอังกฤษ ในกรณีที่มีความขัดแย้งหรือข้อขัดแย้งระหว่างเวอร์ชันที่แปลและเวอร์ชันภาษาอังกฤษ จะให้ความสำคัญเพียงเวอร์ชันภาษาอังกฤษเท่านั้น*
+- *Not: Bu Gizlilik Politikası'nın ana sürümü İngilizcedir. Çevrilmiş sürümler ile İngilizce sürümü arasında herhangi bir uyuşmazlık veya çelişki durumunda İngilizce sürüm geçerli olacaktır.*
+
 # [Jump to English](#english) | [Jump to Chinese (Simplified)](#chinese-simplified) | [Jump to Chinese (Traditional)](#chinese-traditional) | [Jump to Czech](#czech) | [Jump to Danish](#danish) | [Jump to Dutch](#dutch) | [Jump to Finnish](#finnish) | [Jump to French](#french) | [Jump to German](#german) | [Jump to Italian](#italian) | [Jump to Japanese](#japanese) | [Jump to Korean](#korean) | [Jump to Norwegian (Bokmål)](#norwegian-bokmal) | [Jump to Polish](#polish) | [Jump to Portuguese (Brazil)](#portuguese-brazil) | [Jump to Portuguese (Portugal)](#portuguese-portugal) | [Jump to Spanish](#spanish) | [Jump to Swedish](#swedish) | [Jump to Thai](#thai) | [Jump to Turkish](#turkish)
 
 # English <a name="english"></a>
